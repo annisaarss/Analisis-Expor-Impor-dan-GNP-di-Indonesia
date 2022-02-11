@@ -4,4 +4,4 @@ Kelas 4C
 *Berikut nama anggota kelompok :*
 - Annisa Rosdiyana
 - Barrata Persada
-- Adib Fahri
+- Adib Fahri Kafabih
